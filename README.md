@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CARO880827HJCSGR00
+CARO880827HJCSGR00
